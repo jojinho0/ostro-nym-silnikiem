@@ -1,1 +1,0 @@
-# ostro-nym-silnikiem
